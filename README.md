@@ -1,0 +1,1 @@
+# Nifty_200_quantitative-_trading_stratergy
